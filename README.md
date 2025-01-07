@@ -2,7 +2,7 @@
 
 Türkiye'nin en büyük ve güvenilir kumar siteleri listesi
 
-En güncel bahis sitelerini sizler için derledik
+İşte sizler için derledğimiz En güncel bahis sitelerini;
 
 - [Maritbt](https://cutt.ly/ywMxC1qA)
 
@@ -11,3 +11,5 @@ En güncel bahis sitelerini sizler için derledik
 - [xslot](https://cutt.ly/ywMxC1qA)
 
 - [vidobet](https://cutt.ly/ywMxC1qA)
+
+Listedeki sıralama 2024 yılının verilerine dayarak analiz edilmiştir.
